@@ -1,6 +1,4 @@
 # Marblecross
-Privacy Policy for Marblecross
-
 
 Marblecross — Privacy Policy Last updated: February 2026
 
